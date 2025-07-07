@@ -1,6 +1,7 @@
+## Hi there 👋
+
 ![](https://veja.abril.com.br/wp-content/uploads/2016/05/giphy-3-original.gif)
 
-## Hi there 👋
 
 <!--
 **prof-leandrox/prof-leandrox** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
