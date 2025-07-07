@@ -1,4 +1,4 @@
-![](https://media.tenor.com/UducmbjsEdcAAAAM/transparent-happy.gif)
+![](https://veja.abril.com.br/wp-content/uploads/2016/05/giphy-3-original.gif)
 
 ## Hi there 👋
 
